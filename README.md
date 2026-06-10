@@ -1,0 +1,1 @@
+# yaka-3d-asset
